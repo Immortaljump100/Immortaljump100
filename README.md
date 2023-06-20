@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @Immortaljump100 and i'm trying to work on blooket and kahoot menus(Hacks) to give the people the stronger advantage.
